@@ -1,6 +1,7 @@
 I can guide you on creating an article about the Kanguva movie for SEO, focusing on legal ways to access the film, as promoting piracy or illegal downloads would violate copyright laws.
-
+<head>
 <meta name="google-site-verification" content="YiD5p9_Pay3Cpkk5O7EMbmqguapB-VRwvvrdwRRaPeI" />
+</head>
 ---
 
 Title: Kanguva movie download Hd moviesda, tamilyogi, isiamini, kutttymovies
